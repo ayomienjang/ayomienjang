@@ -1,4 +1,4 @@
-## aloow👋 kenalan yuk, i'm... Ayomi!
+## aloow semua 👋 kenalan yuk, i'm... Ayomi!
 
 # 💫 About Me:
 i like matca and lolipop candy
