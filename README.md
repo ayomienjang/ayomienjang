@@ -1,8 +1,8 @@
-## aloow semua 👋 kenalan yuk, i'm... Ayomi!
+## aloow semua 👋 kenalan yuk, aku... Ayomi!
 
 # 💫 About Me:
-i like matca and lolipop candy
-
+I love matcha because it can improve my mood and make me feel alive. Besides that, I also love all sweet and spicy foods.
+Oh yeah, I also like math, I like literature and fiction stories that make me feel like I'm in their world.
 
 ## 🌐 Socials:
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/ayy.9945) [![TikTok](https://img.shields.io/badge/TikTok-%23000000.svg?logo=TikTok&logoColor=white)](https://tiktok.com/@ay0315) 
